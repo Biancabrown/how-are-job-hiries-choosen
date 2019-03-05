@@ -1,4 +1,7 @@
-##How are candidates chosen Graduate Student Member Perspective -- A summary?
+Bianca Brown 
+4th year student Kartiznel Lab
+
+How are candidates chosen Graduate Student Member Perspective -- A summary?
 
 Since I was on the graduate hiring committee, I wanted to add some insight into how the candidates were chosen.
 
